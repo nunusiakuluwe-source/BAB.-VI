@@ -1,2 +1,2 @@
 # BAB.-VI
-BAB. VI - A New Chapter
+BAB. VI - Bab yang tidak pernah ditulis di dalam skripsi.
